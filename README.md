@@ -2,7 +2,8 @@
 
 My Name is Cepri Damiri.\
 I'm a Software Engineering Student.\
-if you interest, please follow this account [Linkedln](https://www.linkedin.com/in/cepri-damiri-49321627a/)
+if you interest, please follow this account [Linkedln](https://www.linkedin.com/in/cepri-damiri-49321627a/)\
+Or you can follow my social media [instagram](https://www.instagram.com/damiri127/)
 
 
 <p align="left">
